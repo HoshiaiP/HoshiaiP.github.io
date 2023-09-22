@@ -1,1 +1,0 @@
-# hoshiaip.github.io
